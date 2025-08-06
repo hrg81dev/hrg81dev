@@ -1,8 +1,8 @@
 # Hello World, I'm Hector 🖖
 
-Aldana's husband. Father of Williams, Boris and Gordo. :cat2: &nbsp; :cat2: &nbsp;:dog:
+Aldana's husband. Father of Williams, Boris, Pantera and Gordo. :cat2: &nbsp; :cat2: &nbsp; :cat2: &nbsp;:dog:
 
-I live in Olivos, Buenos Aires and I'm 39 years old. :argentina:
+I live in Pilar, Buenos Aires and I'm 43 years old. :argentina:
 
 Photographer and motorcycle rider for love. 
 
